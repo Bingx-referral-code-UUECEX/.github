@@ -2,6 +2,8 @@ BingX referral code : UUECEX (claim up to $10,600 bonus instantly)
 
 BingX referral code : UUECEX, which can give you a strong head start. Over 7,938 people have already used this code to unlock exclusive benefits. By entering the BingX referral code during registration
 
+Use this link to directly access the benefits : https://bingx.com/invite/UUECEX/
+
 What is the BingX referral code?
 
 BingX identifies that you joined through this invitation and, in return, rewards you with perks like welcome bonuses, fee discounts, and trading benefits. Using the BingX referral code UUECEX ensures that your journey starts with an edge, giving you added support and incentives instead of starting without any advantages.
